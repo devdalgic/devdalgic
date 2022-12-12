@@ -2,7 +2,7 @@
 
 I'm a software developer who is
 - enthusiastic about the mobile world and digitalization
-- a believer of interdisciplinary thinking
+- a believer in interdisciplinary thinking
 - with an entrepreneurship mindset
 
 Capable of developing 
